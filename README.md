@@ -1,4 +1,4 @@
-# LR en recul dans les grandes villes, le PS tient le choc, l'apparition du RN
+# 25 ans de pouvoir municipal : l'évolution politique des 50 plus grandes villes françaises
 
 *Évolution des maires à la tête des 50 plus grandes villes de France entre 2001 et 2026*
 
